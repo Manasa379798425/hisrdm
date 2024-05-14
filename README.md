@@ -1,1 +1,1 @@
-The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
+Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
