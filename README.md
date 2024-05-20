@@ -1,1 +1,1 @@
-Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
+The fall of the Soviet Union in 1991 marked the end of the Cold War era.
