@@ -1,1 +1,1 @@
-Vasco da Gama reached India by sea in 1498, establishing a trade route to the East.
+The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
