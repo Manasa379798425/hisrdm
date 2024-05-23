@@ -1,1 +1,1 @@
-The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
+Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
