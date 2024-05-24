@@ -1,1 +1,1 @@
-Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
+The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
