@@ -1,1 +1,1 @@
-The invention of the telephone by Alexander Graham Bell in 1876 revolutionized communication.
+Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
