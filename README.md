@@ -1,1 +1,1 @@
-The Cuban Missile Crisis in 1962 brought the world to the brink of nuclear war between the United States and the Soviet Union.
+The Treaty of Tordesillas in 1494 divided the newly discovered lands outside Europe between Spain and Portugal.
