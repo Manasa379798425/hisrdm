@@ -1,1 +1,1 @@
-The Vietnam War, spanning from 1955 to 1975, was a major conflict of the Cold War era.
+Leonardo da Vinci painted the Mona Lisa between 1503 and 1506.
