@@ -1,1 +1,1 @@
-The construction of Stonehenge in England began around 3000 BC.
+Nelson Mandela became South Africa's first black president in 1994, ending decades of apartheid rule.
