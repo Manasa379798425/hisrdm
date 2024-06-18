@@ -1,1 +1,1 @@
-The Industrial Revolution began in Britain in the late 18th century, transforming economies and societies worldwide.
+The first industrial textile mill in the world was established by Richard Arkwright in Cromford, England, in 1771.
