@@ -1,1 +1,1 @@
-The first industrial textile mill in the world was established by Richard Arkwright in Cromford, England, in 1771.
+The fall of the Soviet Union in 1991 marked the end of the Cold War era.
