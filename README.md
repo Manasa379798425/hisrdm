@@ -1,1 +1,1 @@
-The fall of the Soviet Union in 1991 marked the end of the Cold War era.
+The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
