@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
