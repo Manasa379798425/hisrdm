@@ -1,1 +1,1 @@
-Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
+The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
