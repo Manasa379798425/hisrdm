@@ -1,1 +1,1 @@
-The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
+The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
