@@ -1,1 +1,1 @@
-The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
+The Spanish conquest of the Aztec Empire culminated with the fall of Tenochtitlan in 1521.
