@@ -1,1 +1,1 @@
-The Spanish conquest of the Aztec Empire culminated with the fall of Tenochtitlan in 1521.
+The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
