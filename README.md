@@ -1,1 +1,1 @@
-The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
+The first modern Olympics were held in Athens, Greece, in 1896.
