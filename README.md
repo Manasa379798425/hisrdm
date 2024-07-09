@@ -1,1 +1,1 @@
-The first modern Olympics were held in Athens, Greece, in 1896.
+The Vietnam War, spanning from 1955 to 1975, was a major conflict of the Cold War era.
