@@ -1,1 +1,1 @@
-The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
+The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
