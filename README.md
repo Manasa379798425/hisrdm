@@ -1,1 +1,1 @@
-The Zimmermann Telegram, intercepted by British intelligence in 1917, played a crucial role in the United States' decision to enter World War I.
+The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
