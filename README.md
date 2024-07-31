@@ -1,1 +1,1 @@
-The Cuban Revolution in 1959 brought Fidel Castro to power in Cuba.
+The invention of the telephone by Alexander Graham Bell in 1876 revolutionized communication.
